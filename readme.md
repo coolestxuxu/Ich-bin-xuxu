@@ -12,13 +12,13 @@ a local *habitation* and a **name**
 2. an unordered
 3. list
 
-here is 'some code' in the middle of a sentence
-'''
+here is `some code` in the middle of a sentence
+
+```
 this is
 a block
 of code
-'''
+```
  here is how you make [a link](https://www.google.com)
- ![this is an image.](https://github.com/yihui/xaringan/releases/download/v0.0.2/karl-moustache.jpg)
-
+ ![this is an image.](http://eskipaper.com/starry-sky.html#gal_post_5416_starry-sky-4.jpg)
  
