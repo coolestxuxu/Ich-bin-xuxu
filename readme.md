@@ -12,7 +12,7 @@ three of my favourite food are:
 - *Chocolate* noir
 - *les fromages* almost all of them
 - *french fries* real potatoes
-- i dont like sweet things unless there is chocolate in it, yes even fruits
+- i dont like sweet things unless there is chocolate in it, not even most of the fruits
 
 ### music preference
 i have been listening to
