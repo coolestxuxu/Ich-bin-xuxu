@@ -1,6 +1,6 @@
 # XU Ye
 ### natural language processing
-i libe in the city of Yokohama,the satelite city of Tokyo, in Japan
+i live in the city of Yokohama,the satelite city of Tokyo, in Japan
 
 ##highlights about ME
  I am crazy about different languages
