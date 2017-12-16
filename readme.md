@@ -1,7 +1,10 @@
 # XU Ye
 
-hello Lorenzo
+
 ### natural language processing
+
+hello Lorenzo
+
 i live in the city of Yokohama,the satelite city of Tokyo, in Japan
 
 ### highlights about ME
