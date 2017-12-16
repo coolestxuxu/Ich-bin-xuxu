@@ -1,24 +1,34 @@
-# this is a large heading
-## this is a smaller heading
-and as **imagination** bodies forth,
-the forms of things *unknown*, the port pen
-turns them to shapes and gives to airy nothing
-a local *habitation* and a **name**
-- this is
-- an unordered
-- list
+# XU Ye
+### natural language processing
+i live in the city of Yokohama,the satelite city of Tokyo, in Japan
 
-1. this is
-2. an unordered
-3. list
+### highlights about ME
+ I am crazy about different languages
+ I wish to learn German and French
+ But now i can only speak English, Chinese and a little bit Japanese :(
 
-here is `some code` in the middle of a sentence
+### food preference
+three of my favourite food are:
+- *Chocolate* noir
+- *les fromages* almost all of them
+- *french fries* real potatoes
+- i dont like sweet things unless there is chocolate in it, yes even fruits
 
-```
-this is
-a block
-of code
-```
- here is how you make [a link](https://www.google.com)
- ![this is an image.](http://eskipaper.com/starry-sky.html#gal_post_5416_starry-sky-4.jpg)
- 
+### music preference
+i have been listening to
+1. Stromae
+2. Shakira
+3. Hijo de la luna
+all the time
+
+### artistic&literature preference
+i like
+- epic fantasy
+- musicals
+- sifi
+- sometimes i even read philosopher
+
+### the best way to get in touch with me is on [twitter](https://twitter.com/XUYe22).
+
+### i look like this(not really :p)
+![i am kidding](https://i.pinimg.com/originals/65/7f/de/657fde499a0d4a38ae0b7595cdb9f006.jpg)
