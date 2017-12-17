@@ -6,17 +6,23 @@
 I live in the city of YOKOHAMA, JAPAN
 
 I love different languages and I wish to master German and French one day (maybe even more after that:))
-I believe
+
 *The limit of my language means the limits of my world*
+
 **AND**
+
 *The more languages you know, the more people you are* :)
 
 I recently hooked up with a really good looking half ltalian half German dude called Lorenzo
-But after getting to know him I decided not to ruin this friendship cuz he is such a great person.
+
+But after getting to know him I decided not to ruin this friendship cuz he is such a great person
+
 Lorenzo has a cat called Fredi back in Germany
+
 I hope I can meet Fredi someday:)
 
 I am not picky with what I eat as long as it's healthy and fresh(I micro wave raw beef and eat them without adding any seasonings)
+
 But I do love
 - *Chocolate* noir
 - *les fromages* almost all of them
@@ -28,7 +34,8 @@ Music-wise I am into
 2. *Shakira*
 3. *Hijo de la luna* is my anthem
 4. Musicals like *Les miserables*,*Fiddler on the roof*
-5. ALL THE TIME
+
+ALL THE TIME
 
 I enjoy reading very much
 - Epic fantasy *the first law*,*the Farseer*,and of course everybody knows *a song of ice and fire*
