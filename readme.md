@@ -5,6 +5,8 @@
 ### About ME
 I live in the city of YOKOHAMA, JAPAN
 
+I had a thing for Germany and I wish to spend the rest of my life there
+
 I love different languages and I wish to master German and French one day (maybe even more after that:))
 
 *The limit of my language means the limits of my world*
