@@ -32,13 +32,12 @@ But I do love
 - *french fries* real potatoes
 - i dont like sweet things unless there is chocolate in it, not even most of the fruits
 
-Music-wise I am into
-1. *Stromae*
-2. *Shakira*
-3. *Sia*
-4. *Hijo de la luna* is my anthem
+I am listening to those all the time:)
+1. **Stromae** *Carmen*
+2. **Shakira** *Antes de las seis*
+3. **Sia** *Bird set free*
+4. **Mecano** *Hijo de la luna*
 5. Musicals like *Les miserables*,*Fiddler on the roof*
-
 
 I enjoy reading very much
 - Epic fantasy like *The first law*,*The Farseer*,and of course everybody knows *a song of ice and fire*
@@ -50,4 +49,4 @@ I wish to meet Matthew Youlden, check this video you'll find he's fucking amazin
 
 The best way to get contact with me is thru email(xylaven@outlook.com)
 
-latest update date: 2017-12-17
+latest update date: 2017-12-18
