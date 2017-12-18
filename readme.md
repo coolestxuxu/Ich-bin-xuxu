@@ -35,8 +35,9 @@ But I do love
 Music-wise I am into
 1. *Stromae*
 2. *Shakira*
-3. *Hijo de la luna* is my anthem
-4. Musicals like *Les miserables*,*Fiddler on the roof*
+3. *Sia*
+4. *Hijo de la luna* is my anthem
+5. Musicals like *Les miserables*,*Fiddler on the roof*
 
 
 I enjoy reading very much
