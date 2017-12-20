@@ -52,3 +52,5 @@ The best way to get contact with me is thru email(xylaven@outlook.com)
 latest update date: 2017-12-18
 
 ### Sia's xmas album is just awesome :D
+"everyday is christmas when you are here with me, i am safe in your arms you are my angle babe"
+"everyday is christmas when you are by my side, you are the gift that keeps given my angle for life"
