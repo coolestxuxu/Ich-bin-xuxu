@@ -9,7 +9,7 @@ I had a thing for Germany and I wish to spend the rest of my life there
 
 I love different languages
 
-I speak English, Japanese and Chinese and I wish to master German and French one day (maybe even more after that:))
+I speak English, Chinese and a little bit Japanese and I wish to master German and French one day (maybe even more after that:))
 
 *The limit of my language means the limits of my world*
 
@@ -43,11 +43,9 @@ I enjoy reading very much
 - *brave new world*,*the social contract*,*1984*...stop saying Jean-Jacques Rousseau was liberal you bloody stupid French people
 - I am very interested in Hermann Hesse recently because of Lorenzo
 
-I wish to meet Matthew Youlden, check this video you'll find he's fucking amazing[how to learn any language easily](https://www.youtube.com/watch?v=Yr_poW-KK1Q)
+I wish to meet Matthew Youlden, check this video you'll find he's freaking amazing[how to learn any language easily](https://www.youtube.com/watch?v=Yr_poW-KK1Q)
 
 The best way to get contact with me is thru email(xylaven@outlook.com)
-
-latest update date: 2017-12-18
 
 ### Sia's xmas album is just awesome :D
 
