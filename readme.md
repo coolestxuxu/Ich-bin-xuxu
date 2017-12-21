@@ -19,8 +19,6 @@ I speak English, Japanese and Chinese and I wish to master German and French one
 
 My friends is my family ❤️❤️❤️ I love my friends
 
-I recently hooked up with a really good looking half ltalian half German dude called Lorenzo.
-But after getting to know him I decided not to ruin this friendship cuz he is such a great person.
 Lorenzo has a cat called Fredi back in Germany.
 I hope I can meet Fredi someday:)
 
@@ -52,3 +50,5 @@ The best way to get contact with me is thru email(xylaven@outlook.com)
 latest update date: 2017-12-18
 
 ### Sia's xmas album is just awesome :D
+
+latest update date: 2017-12-21
