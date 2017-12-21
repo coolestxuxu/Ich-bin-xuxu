@@ -5,7 +5,7 @@
 ### About ME
 I live in the city of YOKOHAMA, JAPAN
 
-I had a thing for Germany and I wish to spend the rest of my life there
+I had a thing for Germany and I really want to live there for sometime
 
 I love different languages
 
