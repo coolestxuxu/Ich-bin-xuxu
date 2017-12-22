@@ -19,7 +19,8 @@ I speak English, Chinese and a little bit Japanese and I wish to master German a
 
 My friends is my family ❤️❤️❤️ I love my friends
 
-Lorenzo has a cat called Fredi back in Germany.
+Lorenzo has a warm, gentle and beautiful heart.
+He has a cat called Fredi back in Germany.
 I hope I can meet Fredi someday:)
 
 I am not picky with what I eat as long as it's healthy and fresh(I microwave raw beef and eat them without adding any seasonings :) scary huh)
@@ -49,4 +50,4 @@ The best way to get contact with me is thru email(xylaven@outlook.com)
 
 ### Sia's xmas album is just awesome :D
 
-latest update date: 2017-12-21
+latest update date: 2017-12-22
