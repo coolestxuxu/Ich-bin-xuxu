@@ -2,6 +2,12 @@
 
 ### Natural Language Processing is the light of my life
 
+あけましておめでとう
+
+## wish you a very happy 2018 and all your dreams come true##
+
+&&&&&&&&&&&&& last update from here 2018-01-04 &&&&&&&&&&&&&&&&&&&&
+
 ### About ME
 I live in the city of YOKOHAMA, JAPAN
 
