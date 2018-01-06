@@ -2,9 +2,12 @@
 
 ### Natural Language Processing is the light of my life
 
+Tomas Mikolov is fucking awesoooome, now i am having Mikolovmania cuz nothing's sexier than a super smart brain
+_ last update until here 2018-01-06 _
+
 あけましておめでとう
 
-## wish you a very happy 2018 and all your dreams come true##
+### wish you a very happy 2018 and all your dreams come true##
 
 _ last update until here 2018-01-04 _
 
