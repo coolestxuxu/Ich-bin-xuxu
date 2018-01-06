@@ -2,7 +2,10 @@
 
 ### Natural Language Processing is the light of my life
 
+/****************  some daily inspiration of mine *******************/
+
 Tomas Mikolov is fucking awesoooome, now i am having Mikolovmania cuz nothing's sexier than a super smart brain
+
 _ last update until here 2018-01-06 _
 
 あけましておめでとう
