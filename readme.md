@@ -56,6 +56,7 @@ I enjoy reading very much
 - Epic fantasy like *The first law*,*The Farseer*,and of course everybody knows *a song of ice and fire*
 - Science fiction, favourite one is always *hitchhiker's guide to the galaxy*
 - *brave new world*,*the social contract*,*1984*...stop saying Jean-Jacques Rousseau was liberal you bloody stupid French people
+- I love classics as well *Victor Hugo*,*Dickens*,
 - I am very interested in Hermann Hesse recently because of Lorenzo
 
 I wish to meet Matthew Youlden, check this video you'll find he's freaking amazing[how to learn any language easily](https://www.youtube.com/watch?v=Yr_poW-KK1Q)
