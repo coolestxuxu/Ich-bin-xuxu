@@ -4,6 +4,10 @@
 
 /****************  some daily inspiration of mine *******************/
 
+Smth happened in the last few days, I want to tell Lorenzo, 'you will never be alone, I will be with you from dusk to dawn'
+
+_ last update until here 2018-01-12 _
+
 Tomas Mikolov is fucking awesoooome, now i am having Mikolovmania cuz nothing's sexier than a super smart brain
 
 _ last update until here 2018-01-06 _
