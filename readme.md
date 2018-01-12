@@ -4,7 +4,7 @@
 
 /****************  some daily inspiration of mine *******************/
 
-Smth happened in the last few days, I want to tell Lorenzo, 'you will never be alone, I will be with you from dusk to dawn'
+Smth happened in the last few days, I want to tell my amaboy, 'you will never be alone, I will be with you from dusk to dawn'
 
 _ last update until here 2018-01-12 _
 
@@ -33,7 +33,7 @@ I speak English, Chinese and a little bit Japanese and I wish to master German a
 
 My friends is my family ❤️❤️❤️ I love my friends
 
-Lorenzo has a warm, gentle and beautiful heart.
+Lorenzo is my amaboy(アマボエ), he has a warm, gentle and beautiful heart.
 
 He cooks nice, healthy food for me.
 
