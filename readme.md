@@ -4,10 +4,6 @@
 
 /****************  some daily inspiration of mine *******************/
 
-Smth happened in the last few days, I want to tell my amaboy, 'you will never be alone, I will be with you from dusk to dawn'
-
-_ last update until here 2018-01-12 _
-
 Tomas Mikolov is fucking awesoooome, now i am having Mikolovmania cuz nothing's sexier than a super smart brain
 
 _ last update until here 2018-01-06 _
@@ -33,7 +29,7 @@ I speak English, Chinese and a little bit Japanese and I wish to master German a
 
 My friends is my family ❤️❤️❤️ I love my friends
 
-Lorenzo is my amaboy(アマボエ), he has a warm, gentle and beautiful heart.
+Lorenzo is my あまboy, he has a warm, gentle and beautiful heart.
 
 He cooks nice, healthy food for me.
 
@@ -59,7 +55,7 @@ I am listening to those all the time:)
 I enjoy reading very much
 - Epic fantasy like *The first law*,*The Farseer*,and of course everybody knows *a song of ice and fire*
 - Science fiction, favourite one is always *hitchhiker's guide to the galaxy*
-- *brave new world*,*the social contract*,*1984*...stop saying Jean-Jacques Rousseau was liberal you bloody stupid French people
+- *brave new world*,*the social contract*,*1984*...stop saying Jean-Jacques Rousseau was liberal you bloody stupid French people（kidding lol, j'aime l'hommes de France :p
 - I love classics as well *Victor Hugo*,*Dickens*,
 - I am very interested in Hermann Hesse recently because of Lorenzo
 
