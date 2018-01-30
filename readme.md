@@ -4,6 +4,10 @@
 
 /****************  some daily inspiration of mine *******************/
 
+さむい〜さむい〜さ〜〜〜〜む〜〜〜〜〜い
+
+_ last update until here 2018-01-30 _
+
 Yesterday great snowfall came to Yokohama, びっくりしたけど、　とても楽しかった。My あまboy doesn't like coldness but i am so taking him to Hokkaidou。 I'll wrap him in 3 futons and put mega thick mask and hat and gloves to keep him warm. He will look super elegant with a red umbrella in Hokkaidou snow xD GOD I am so in love with him.
 
 _ last update until here 2018-01-23 _
